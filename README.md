@@ -1,2 +1,2 @@
-# Sanket-
+# Smart
 Anything
